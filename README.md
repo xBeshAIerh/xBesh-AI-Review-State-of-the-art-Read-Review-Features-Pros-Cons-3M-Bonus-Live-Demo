@@ -6,6 +6,60 @@
 <p class="ds-markdown-paragraph">This isn’t science fiction—it’s <strong>xBesh AI</strong>, the revolutionary platform that’s <strong>changing how software is created forever</strong>.</p>
 <p class="ds-markdown-paragraph">If you’ve ever had an app idea but felt <strong>stuck because you don’t know how to code</strong>, this review is for you.</p>
 
+# 🤖 xBesh AI – Full Funnel + Bonus Vault Access
+
+## 🚀 xBesh AI Bundle Deal (SAVE $308)  
+🎁 Get xBesh AI FE + ALL Upgrades for a One-Time Payment  
+Type in your browser:  
+`jvz3[dot]com/c/672499/417761`
+
+---
+
+## 🔹 xBesh AI Front-End (FE)  
+Type: `jvz7[dot]com/c/672499/417407`
+
+---
+
+## 🔄 Optional Upgrades (OTOs)
+
+- **OTO 1: xBesh AI Black Vanta**  
+  Type: `jvz8[dot]com/c/672499/417753`
+
+- **OTO 2: xBesh AI DFY Command Center**  
+  Type: `jvz2[dot]com/c/672499/417755`
+
+- **OTO 3: xBesh AI 360 Agency**  
+  Type: `jvz1[dot]com/c/672499/417757`
+
+- **OTO 4: xBesh AI Reseller**  
+  Type: `jvz1[dot]com/c/672499/417759`
+
+---
+
+## 🎁 Check Bonus Page  
+See everything you'll get from me:  
+`williamreview[dot]com/xbesh-ai`
+
+---
+
+## 💥 Bonus Vault  
+🔥 **Mega 5,000 Bonuses – Total Value: $2,976,749+**  
+Access here:  
+`jvzooplinformation[dot]blogspot[dot]com/2023/04/vip-5000-bonuses-from-william-review.html`
+
+---
+
+## 📝 How to Claim Your Bonuses:
+
+1. Order via any of the links above.
+2. Send your **receipt ID** to: `support@williamreview[dot]com`
+3. I’ll deliver all bonuses within **12 hours** — be sure to confirm via email.
+
+---
+
+✅ **Affiliate ID Confirmation**  
+At the bottom of the checkout page, make sure it shows:  
+**Affiliate: 672499 - William Johnson**
 
 <hr />
 
@@ -215,3 +269,57 @@
 <p class="ds-markdown-paragraph">No more excuses. <strong>Your app idea is just a prompt away.</strong></p>
 <p class="ds-markdown-paragraph"><strong>👉 Get xBesh AI Now &amp; Start Building Today</strong></p>
 <p class="ds-markdown-paragraph"><strong>Your SaaS empire starts NOW.</strong> 🚀</p>
+# 🤖 xBesh AI – Full Funnel + Bonus Vault Access
+
+## 🚀 xBesh AI Bundle Deal (SAVE $308)  
+🎁 Get xBesh AI FE + ALL Upgrades for a One-Time Payment  
+Type in your browser:  
+`jvz3[dot]com/c/672499/417761`
+
+---
+
+## 🔹 xBesh AI Front-End (FE)  
+Type: `jvz7[dot]com/c/672499/417407`
+
+---
+
+## 🔄 Optional Upgrades (OTOs)
+
+- **OTO 1: xBesh AI Black Vanta**  
+  Type: `jvz8[dot]com/c/672499/417753`
+
+- **OTO 2: xBesh AI DFY Command Center**  
+  Type: `jvz2[dot]com/c/672499/417755`
+
+- **OTO 3: xBesh AI 360 Agency**  
+  Type: `jvz1[dot]com/c/672499/417757`
+
+- **OTO 4: xBesh AI Reseller**  
+  Type: `jvz1[dot]com/c/672499/417759`
+
+---
+
+## 🎁 Check Bonus Page  
+See everything you'll get from me:  
+`williamreview[dot]com/xbesh-ai`
+
+---
+
+## 💥 Bonus Vault  
+🔥 **Mega 5,000 Bonuses – Total Value: $2,976,749+**  
+Access here:  
+`jvzooplinformation[dot]blogspot[dot]com/2023/04/vip-5000-bonuses-from-william-review.html`
+
+---
+
+## 📝 How to Claim Your Bonuses:
+
+1. Order via any of the links above.
+2. Send your **receipt ID** to: `support@williamreview[dot]com`
+3. I’ll deliver all bonuses within **12 hours** — be sure to confirm via email.
+
+---
+
+✅ **Affiliate ID Confirmation**  
+At the bottom of the checkout page, make sure it shows:  
+**Affiliate: 672499 - William Johnson**
